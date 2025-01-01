@@ -1,0 +1,1 @@
+# seguran-a-cibern-tica-desafio-ransomware
